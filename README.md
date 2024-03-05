@@ -2,7 +2,7 @@
 - 👀 I’m interested in Camping, filmphotography
 - 🌱 I’m currently learning specialized coding
 - 💞️ I’m looking to collaborate on APP produciton
-- 📫 How to reach me -> through instagram DM @chroba.coooooooooooooooooooooo
+- 📫 How to reach me -> through instagram DM @chroba.cccccccccccccccccccccco
 - 😄 Pronouns: he/him/American-Chinese-Korean
 - ⚡ Fun fact: missing single inner lines on the ring finger joints of both hands
 
